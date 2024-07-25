@@ -5,4 +5,4 @@
 - Me divirto estudando 💙
 - Gosto de aprender coisas novas todos os dias ☀️
   
-![](https://tenor.com/pt-PT/view/puss-in-boots-cute-eyes-gif-14622719)
+![](https://media.tenor.com/dG5tuneH22YAAAAM/cat-ears-cat-eyes.gif)
